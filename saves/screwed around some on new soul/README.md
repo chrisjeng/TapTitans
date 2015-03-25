@@ -1,0 +1,1 @@
+Screwed around some on the new soul by buying 2 artifacts.
