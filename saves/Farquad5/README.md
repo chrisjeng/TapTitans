@@ -1,1 +1,0 @@
-Got Berserker duration axe of resolution
